@@ -8,7 +8,7 @@
 
 - 🌱 I’m currently learning **Machine Learning ,NLP,Deep Learning**
 
-- 📫 How to reach me **rs3981524@gmail.com**
+- 📫 How to reach me **riyasharma40940@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
